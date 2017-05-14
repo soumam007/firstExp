@@ -1,2 +1,2 @@
 # firstExp
-hellllloooo this is my firdt time...just tryinggg!!!!
+hellllloooo this is my first time...just tryinggg!!!!
